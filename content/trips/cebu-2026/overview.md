@@ -1,0 +1,3 @@
+We landed in Cebu with eleven souls ready for sun, sea, and spontaneity. What started as a plan to explore the city quickly turned into island-hopping days, late-night laughs, and mornings that smelled like salt and coffee.
+
+From the streets of Cebu City to the turquoise waters around Moalboal and beyond, every day brought a new view and a new story. This page holds our shared memories — the big group shots and the quiet in-between moments.
