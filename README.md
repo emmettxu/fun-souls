@@ -11,6 +11,8 @@ npm run dev
 
 Open [http://localhost:3000](http://localhost:3000).
 
+[https://a-fun-souls.vercel.app/](https://a-fun-souls.vercel.app/)
+
 ## Build & deploy (Vercel)
 
 ```bash
